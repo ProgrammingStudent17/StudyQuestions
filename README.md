@@ -1,1 +1,1 @@
-For Chegg Questions
+For Study Questions
